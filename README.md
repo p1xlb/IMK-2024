@@ -1,3 +1,5 @@
+Figma (Desain) : https://www.figma.com/file/0c6g8NUrd8fGHmKliiBmy8/Website-PT.-Putar-Putar?type=design&node-id=51%3A193&mode=design&t=2omthZROLBMtC3wt-1
+
 Tugas IMK
 
 Kelompok 6
